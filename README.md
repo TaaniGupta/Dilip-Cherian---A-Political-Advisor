@@ -1,0 +1,2 @@
+# Dilip-Cherian---A-Political-Advisor
+Dilip Cherian is one of India’s foremost public affairs consultant and political advisor, widely regarded as India’s ‘Image Guru’. Dilip joined Business India in 1980, where he was responsible for creating a separate section on policy making.He has been the Editor of India’s biggest business magazine Business India and the Observer newspaper. Dilip has recently been appointed as a member of PR Lions Jury at 60th Cannes Lions International Festival of Creativity, 16–22 June 2013, Cannes, France.
